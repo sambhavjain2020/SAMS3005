@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SAMS3005
+- 👋 Hi, I’m @SAMBHAV JAIN
 - 👀 I’m interested in enjoying my life
 - 🌱 I’m currently learning some new skills
 - 💞️ I’m looking to collaborate on nothing
